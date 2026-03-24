@@ -29,3 +29,11 @@ For a detailed guide on how to **sell gold in London**, visit:
 👉 https://moonstonegold.co.uk/sell-gold-london/
 
 This resource explains the full process, including secure postage, valuation, and payment.
+
+## Gold Price Calculator UK
+
+👉 https://moonstonegoldlimited.github.io/gold-price-calculator-uk/
+
+## Sell Gold in the UK
+
+👉 https://moonstonegold.co.uk/sell-gold/
